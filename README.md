@@ -24,6 +24,7 @@
 - I’m currently open for an Intern or a new job opportunity, this is [my resume](https://read.cv/0xabdulkhalid)
 - love
 - work
+- one pice
 
 <br><br>
 
