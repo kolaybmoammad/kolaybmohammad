@@ -27,6 +27,7 @@
 - one pice
 - naruto
 - zoro
+- saski
 
 <br><br>
 
