@@ -25,6 +25,8 @@
 - love
 - work
 - one pice
+- koko
+
 - mimo
 
 <br><br>
